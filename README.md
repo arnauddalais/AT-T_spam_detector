@@ -4,7 +4,7 @@ PROJECTS Deep Learning
 
 Contact: Arnaud DALAIS E-mail  : arnaud.dalais@free.fr
 
-Video link : 👉 👈
+Video link : 👉 https://share.vidyard.com/watch/nqHwfscaU8CUUPPbefDkfx? 👈
 
 Subject :
 
